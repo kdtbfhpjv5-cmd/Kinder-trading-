@@ -1,0 +1,2 @@
+# Kinder-trading-
+Official trading 
